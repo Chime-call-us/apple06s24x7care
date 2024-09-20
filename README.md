@@ -1,0 +1,1 @@
+# apple06s24x7care
